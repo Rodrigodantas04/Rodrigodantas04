@@ -4,7 +4,7 @@
 🎓 Mestre em Engenharia Informática (em curso)  
 🏫 Licenciado em Engenharia Informática pela **Universidade do Minho**  
 📍 Ponte de Lima, Viana do Castelo, Portugal  
-🗓️ 21 anos | Nascido a 7 de Outubro de 2004  
+🗓️ 22 anos | Nascido a 7 de Outubro de 2004  
 
 ---
 
